@@ -1,4 +1,7 @@
 # yo
+
+### Update: a Unit 1 or 2 Review will not be coming. Sorry :(
+
 I know this is a weird website to do bio studying on.
 
 Above this there are a lot of files. Some are pdfs, some are .txt files. 
